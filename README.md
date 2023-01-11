@@ -14,10 +14,19 @@ Thanks to all [contributors](https://github.com/jakshi/awesome-bangkok/graphs/co
 ## Bread
 
 * [Holey Artisan Bakery](https://g.page/HoleyS31?share) - Very good sourdough bread.
+* [BARTELS Sukhumvit - Craft Bread, Coffee & Juicery](https://goo.gl/maps/NdvvoLbU6BMQxUoN8) - One of the best sourdough bread in Bangkok, tasty sandwiches :)
+
+## Breakfast
+
+* [Chu](https://goo.gl/maps/8VJ73tpzH2cQLB549) - Great breakfast cafe.
+* [Breakfast Story Asok](https://goo.gl/maps/riwZpyMRZ7QQqW7r7) - American breakfast, quite good, nice atmosphere :)
+* [Chan & Yupa Cuisine](https://goo.gl/maps/gd28zRfZ5dAdsuYZ8) - Great breakfasts with garden view
+* [Citylight coffee](https://goo.gl/maps/ZAnukmSFe2mbug4H7) - Good coffee, good breakfasts
 
 ## Croissants
 
-* [Gontran Cherrier Thailand](https://www.facebook.com/GontranCherrierThailand/) - best croissants with ham and cheese in Bangkok.
+* [Tiengna Viennoiserie](https://goo.gl/maps/exSTwXPPZfGBzoWD6) - best corissants in Bangkok :)
+* [Gontran Cherrier Thailand](https://www.facebook.com/GontranCherrierThailand/) - great croissants with ham and cheese in Bangkok.
 
 ## Steaks
 
